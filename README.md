@@ -1,0 +1,5 @@
+- Hi, I’m @NoahRushing
+- I’m a recent CS grad from US Santa Cruz
+- I’m currently working on personal projects
+- and open to working.
+- Reach me at noah.j.rushing@gmail.com
